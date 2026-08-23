@@ -12,3 +12,6 @@
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ata](https://giggl3zzz.atabook.org/)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[sp](https://giggl3zzzfo.straw.page)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[carrd](https://gabeamore.carrd.co/)
 
 <p align="center"><img src="purple up border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
+<img width="99" height="60" alt="blue" src="https://github.com/user-attachments/assets/e12cf673-676b-4c26-9166-2a96a8353643" /><img width="99" height="56" alt="kangel stamp 2" src="https://github.com/user-attachments/assets/238d615d-9f7f-4d1c-9135-8346f49285d9" />
+<img width="99" height="56" alt="kangel stamp" src="https://github.com/user-attachments/assets/a9563ed3-027f-475a-abb3-231ba3a1cb1e" />
+
