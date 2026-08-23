@@ -2,6 +2,8 @@
 <p align="center"><img src="purple down border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
 <p align="center"><img src="Untitled670_20260823124614.webp" alt="dr ratio gfx" width="whatever" height="whatever"></p>
 <p align="center"><img src="purple up border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
+
+<p align="center"><img src="rainbow.png"><img src="gay.png"><img src="trans.png"><img src="transmasc.png"><img src="ace.png"></p>
 <p align="center"><img src="purple down border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
 <p align="center"><img src="dr ratio 3 eidolon.png" alt="dr ratio eidolon 2, 4, and 6"></p>
 
