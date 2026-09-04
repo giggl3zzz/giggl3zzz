@@ -4,14 +4,17 @@
 <p align="center"><img src="purple up border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
 <p align="center"><img width="20" height="20" alt="purple bow" src="https://github.com/user-attachments/assets/b36cef63-bb8d-48d8-a9d4-c3891be22a52" /> ⌞gabe ◞ 15⌝<img width="19" height="19" alt="purple pill" src="https://github.com/user-attachments/assets/77fe0d25-933c-4713-8ddb-3844d0bfc97f" /></p>
 <p align="center"><img src="rainbow.png"><img src="gay.png"><img src="trans.png"><img src="transmasc.png"><img src="ace.png"></p>
-<p align="center">⌞c*h*k freely ! sign ata or sp if u want to be oomfies. make sure to leave down ur github⌝</p>
+<p align="center">⌞c*h*k freely ! sign ata or sp if u want to be oomfies. make sure to leave down ur github <br /> <img width="20" height="20" alt="purple swirl" src="https://github.com/user-attachments/assets/6868f95b-14b4-4a1a-95b7-faad8d7639d4" />
+ any1 can cuddle me at anytime !! i love cuddles dont be afraid to cuddle me randomly <img width="17" height="17" alt="purple beaker" src="https://github.com/user-attachments/assets/200c8d47-1f32-4934-b727-8b538c2c6ba0" />
+ <br /> you may need to whisper me most of the time, i dont pay attention to pub chats that arent from friends⌝</p>
 <p align="center"><img width="257" height="28" alt="Captură de ecran 2026-08-21 134034" src="https://github.com/user-attachments/assets/496daeb4-ba12-448a-a11f-c8aac9496f76" /></p>
 <p align="center"><img width="100" height="18" alt="fo love" src="https://github.com/user-attachments/assets/eb4e11f3-c911-45c6-b6c9-1998a32725fe" /><img width="52" height="18" alt="single" src="https://github.com/user-attachments/assets/2cbc1e9b-095e-492e-9dbf-3ae99dba2e8a" /><img width="150" height="20" alt="kqangel" src="https://github.com/user-attachments/assets/e611e491-fd8a-46bf-b2f0-00af6674a45b" /><img width="67" height="18" alt="honkai" src="https://github.com/user-attachments/assets/c7707ade-aa2a-4978-a0fd-07803d943eca" /><img width="61" height="18" alt="he him" src="https://github.com/user-attachments/assets/9e070041-e855-4f56-85c6-aa3467866cb3" /></p>
 
 <p align="center"><img src="purple down border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
 <p align="center"><img src="dr ratio 3 eidolon.png" alt="dr ratio eidolon 2, 4, and 6"></p>
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ata](https://giggl3zzz.atabook.org/)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[sp](https://giggl3zzzfo.straw.page)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[carrd](https://gabeamore.carrd.co/)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ata](https://giggl3zzz.atabook.org/)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="45" height="18" alt="cutie" src="https://github.com/user-attachments/assets/7f4ec360-fd49-4e0a-9497-7244d6c71661" />&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[sp](https://giggl3zzzfo.straw.page)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="76" height="18" alt="archangel" src="https://github.com/user-attachments/assets/fc6aa462-1ba3-4369-bc59-493d0b1cec13" />
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[carrd](https://gabeamore.carrd.co/)
 
 <p align="center"><img src="purple up border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
 <img width="99" height="60" alt="blue" src="https://github.com/user-attachments/assets/e12cf673-676b-4c26-9166-2a96a8353643" /><img width="99" height="56" alt="kangel stamp 2" src="https://github.com/user-attachments/assets/238d615d-9f7f-4d1c-9135-8346f49285d9" /><img width="99" height="56" alt="kangel stamp" src="https://github.com/user-attachments/assets/a9563ed3-027f-475a-abb3-231ba3a1cb1e" />
