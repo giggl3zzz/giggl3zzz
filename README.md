@@ -14,7 +14,7 @@
 <p align="center"><img src="dr ratio 3 eidolon.png" alt="dr ratio eidolon 2, 4, and 6"></p>
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ata](https://giggl3zzz.atabook.org/)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="45" height="18" alt="cutie" src="https://github.com/user-attachments/assets/7f4ec360-fd49-4e0a-9497-7244d6c71661" />&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[sp](https://giggl3zzzfo.straw.page)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="76" height="18" alt="archangel" src="https://github.com/user-attachments/assets/fc6aa462-1ba3-4369-bc59-493d0b1cec13" />
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[prns.cc](https://pronouns.cc/@giggl3zz)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[prns.cc](https://pronouns.cc/@giggl3zz)
 
 <p align="center"><img src="purple up border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
 <p align="center"><img width="99" height="60" alt="blue" src="https://github.com/user-attachments/assets/e12cf673-676b-4c26-9166-2a96a8353643" /><img width="99" height="56" alt="kangel stamp 2" src="https://github.com/user-attachments/assets/238d615d-9f7f-4d1c-9135-8346f49285d9" /><img width="99" height="56" alt="kangel stamp" src="https://github.com/user-attachments/assets/a9563ed3-027f-475a-abb3-231ba3a1cb1e" /></p>
