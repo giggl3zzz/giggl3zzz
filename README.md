@@ -13,7 +13,7 @@
 <p align="center"><img src="purple down border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
 <p align="center"><img src="dr ratio 3 eidolon.png" alt="dr ratio eidolon 2, 4, and 6"></p>
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ata](https://giggl3zzz.atabook.org/)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="45" height="18" alt="cutie" src="https://github.com/user-attachments/assets/7f4ec360-fd49-4e0a-9497-7244d6c71661" />&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[sp](https://giggl3zzzfo.straw.page)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="76" height="18" alt="archangel" src="https://github.com/user-attachments/assets/fc6aa462-1ba3-4369-bc59-493d0b1cec13" />
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ata](https://giggl3zzz.atabook.org/)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="45" height="18" alt="cutie" src="https://github.com/user-attachments/assets/7f4ec360-fd49-4e0a-9497-7244d6c71661" />&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[sp](https://giggl3zzzfo.straw.page)&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="76" height="18" alt="archangel" src="https://github.com/user-attachments/assets/fc6aa462-1ba3-4369-bc59-493d0b1cec13" />
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[prns.cc](https://pronouns.cc/@giggl3zz)
 
 <p align="center"><img src="purple up border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
