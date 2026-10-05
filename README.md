@@ -1,6 +1,7 @@
 # Best viwed on desktop, apologies
 <p align="center"><img src="purple down border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
-<p align="center"><img src="Untitled670_20260823124614.webp" alt="dr ratio gfx" width="whatever" height="whatever"></p>
+<p align="center"><img width="1024" height="575" alt="Untitled670_20261002143005" src="https://github.com/user-attachments/assets/fddeec45-13eb-4edc-88e1-f13a8b3931c8" />
+
 <p align="center"><img src="purple up border.png" alt="dr ratio eidolon 2, 4, and 6"width="600"></p>
 <p align="center"><img width="20" height="20" alt="purple bow" src="https://github.com/user-attachments/assets/b36cef63-bb8d-48d8-a9d4-c3891be22a52" /> ⌞gabe ◞ 15⌝<img width="19" height="19" alt="purple pill" src="https://github.com/user-attachments/assets/77fe0d25-933c-4713-8ddb-3844d0bfc97f" /></p>
 <p align="center"><img src="rainbow.png"><img src="gay.png"><img src="trans.png"><img src="transmasc.png"><img src="ace.png"></p>
